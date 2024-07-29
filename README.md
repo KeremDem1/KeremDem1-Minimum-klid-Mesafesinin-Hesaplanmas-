@@ -1,0 +1,1 @@
+# KeremDem1-Minimum-klid-Mesafesinin-Hesaplanmas-
